@@ -1,2 +1,2 @@
 introduce to data science
-![](/insert path here)
+![](/images/461254518_536864352433514_7719785420694410968_n.jpg)
